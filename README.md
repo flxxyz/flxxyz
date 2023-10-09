@@ -8,7 +8,7 @@
 
 ### 🥷 Spots where you can catch me
 
-- Email [Follow up here](mailto:to@darker.to)
+- Email [Follow up here](mailto:shinji@sao.sh)
 - Steam [@flxxyz](https://steamcommunity.com/id/flxxyz/)
 - twitter [@oO0Oo00oOo0O0Oo](https://twitter.com/oO0Oo00oOo0O0Oo)
 
