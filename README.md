@@ -13,3 +13,5 @@
 ### ✨ Visitor Counter
 
 ![Visited By](https://count.getloli.com/get/@flxxyz?theme=moebooru)
+
+[![IP Card](https://card.net.coffee/v1/card.svg?style=vapor&sticker=st-gen2&w=480)](https://ip.net.coffee/ip/)
